@@ -1,1 +1,1 @@
-# Loja-de-inform-tica
+# Loja-de-informatica
